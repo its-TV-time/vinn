@@ -6,7 +6,7 @@
 
 ![](https://64.media.tumblr.com/2077065e303e11d3d03dcb208c539fa7/94bb6a3f9633dfc4-e8/s2048x3072/e766fb400463c5c643a0b43f74255ddee92d435a.pnj)
 
-<div align="center"> Vinn, Vinny || 15 || current interest..; deltarune || kris deltarune.......
+<div align="center"> Vinn, Vinny || 16 || current interest..; deltarune / deernull
 
 ![](https://64.media.tumblr.com/2077065e303e11d3d03dcb208c539fa7/94bb6a3f9633dfc4-e8/s2048x3072/e766fb400463c5c643a0b43f74255ddee92d435a.pnj)
 
